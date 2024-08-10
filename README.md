@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil do BlueDragon221 😁
+## Bem-vindo(a) ao perfil do BlueDragon221 🌀
 
  <div>
    <a href="https://github.com/BlueDragon221">
